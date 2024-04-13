@@ -5,5 +5,8 @@
 
 ![image](https://github.com/zajackarolina/strona_internetowa/assets/147318667/bb538418-363b-41bb-a961-43d8a35b51b7)
 
+![image](https://github.com/zajackarolina/strona_internetowa/assets/147318667/8b39742d-2b8c-4e4c-8d38-51f818015f16)
+
+
 
 
